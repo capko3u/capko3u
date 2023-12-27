@@ -1,4 +1,4 @@
-/header.png
+[![MasterHead]([your image link](https://m.seonews.ru/upload/iblock/a5b/a5bca6110d2c6c8f8e0ab44675750a7c.jpg))]([your GitHub link](https://github.com/capko3u))
 
 ### Hi there 👋
 
