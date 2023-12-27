@@ -1,4 +1,4 @@
-[![MasterHead](https://pictures.telegram-store.com/channels/cryptonacialive/1342_2022_06_08_1_.jpg)](https://github.com/capko3u)
+[![MasterHead](https://disk.yandex.ru/i/J45zxVF4jLdArw)](https://github.com/capko3u)
 
 ### Hi there 👋
 
