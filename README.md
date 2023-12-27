@@ -1,4 +1,4 @@
-[![MasterHead](https://disk.yandex.ru/i/J45zxVF4jLdArw)](https://github.com/capko3u)
+[![MasterHead](https://m.seonews.ru/upload/iblock/a5b/a5bca6110d2c6c8f8e0ab44675750a7c.jpg)](https://github.com/capko3u)
 
 ### Hi there 👋
 
